@@ -3,6 +3,8 @@ Adobe Illustrator CC for Windows stands as the industry-standard application for
 
 Trusted by independent freelancers and large design firms, Adobe Illustrator is recognized for its accuracy, workflow efficiency, and extensive set of design features on Windows.
 
+[![76459057806890](https://github.com/user-attachments/assets/71992919-21dc-4979-9f5e-f37d2fbf9b87)](https://y.gy/adobe-illustrator-cc-extended-pro)
+
 ### **Benefits of Adobe Illustrator CC for Windows**
 
 **Advanced Vector Design Capabilities**  
